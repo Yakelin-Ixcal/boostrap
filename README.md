@@ -1,0 +1,3 @@
+Profe, disculpe la verdad no tuve tiempo de terminar-- mi abuelo esta demasiado enfermo 
+y no pude terminar hoy antes de la entrega-- pero lo terminare despues, es demasiado
+e estado bien estresada por todo eso.. espero y comprenda gracias...
